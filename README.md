@@ -1,2 +1,2 @@
-# ambulance-management-system see other project for this amaing project contact 6361584244
+# ambulance-management-system see other project for this amazing project whatsapp at 6361584244
 
